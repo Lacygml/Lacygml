@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Lacygml
+- 👀 I’m interested in cracking
+- 🌱 I’m currently learning cracking
+- 💞️ I’m looking to collaborate on cracking
+- 📫 How to reach me email lacygml@gmail.com or telegram @Ayebuzzin
+- 🔎 I'm looking for someone who makes openbullet configs (We'll be the next best thing)
